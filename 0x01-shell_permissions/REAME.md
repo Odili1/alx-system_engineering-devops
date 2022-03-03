@@ -1,1 +1,0 @@
-Switching user to Betty
